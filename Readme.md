@@ -5,58 +5,43 @@
 <img src="https://user-images.githubusercontent.com/101389155/157835005-ac2e2398-5b71-47e8-9e16-54a47f67cb56.png" width="200px" />
 </div>
 
-A Hydracorp tem por objetivo incentivar projetos descentralizados, buscando subsidiar e  dar vida a projetos de diferentes pessoas com ideias que agreguem no desenvolvimento socio-econômico e ambiental.
+Hydracorp's objective is to encourage decentralized projects, seeking to subsidize and give life to projects by different people with ideas that add to socio-economic and environmental development.
 
  
 
-A Hydracorp é uma empresa comprometida em gerar um ecossistema sustentável, garantidor da liberdade e prosperidade social, movendo a sociedade de uma maneira compatível com a proteção do meio ambiente do planeta, atendendo as necessidades e aspirações das gerações atuais e futuras.
+Hydracorp is a company committed to generating a sustainable ecosystem, guaranteeing freedom and social prosperity, moving society in a way that is compatible with the protection of the planet's environment, meeting the needs and aspirations of current and future generations.
+ 
+
+The company has a team of highly qualified employees in the most varied areas and specializations, in order to expand the network of decentralized and distributed projects.
 
  
 
-A empresa conta com um time de colaboradores altamente capacitados nas mais variadas áreas e especializações, a fim de ampliar a rede de projetos descentralizados e distribuídos. 
-
- 
-
-Por meio da união dos projetos descentralizadores e os incentivos em criptomoedas, teremos a fusão libertária e aceleradora do crescimento macroeconômico.
-
- 
-
-Vale ressaltar que, a empresa está alinhada ao propósito da criação do Bitcoin, por Satashi Nakamoto, qual seja, a visão libertária da mínima intervenção estatal. 
-
- 
-
-Inúmeras criptomoedas hoje circulantes no mercado, não possuem propósito ou visão libertária, são as chamadas shitcoins. Em contrapartida a Hydracrop possui um propósito claro e definido.
-
- 
-
-Somos muito gratos aos criadores ou criador dessa moeda libertadora, fora outras como Ethereum e BinanceCoin, que são sistemas nos quais acreditamos, entre alguns outros que são bem promissores.
-
- 
-
-A missão da Hydracorp é entregar ferramentas fundamentais que permitam o acesso da população à liberdade e prosperidade financeira. Estas ferramentas são, principalmente, tecnologia e conhecimento no desenvolvimento e viabilização dos mais variados projetos que beneficiarão sociedade. 
-
- 
-
-Os projetos incorporados à Hydracorp darão a capacidade de gerar fonte de renda extra. Além disso, serão aceleradores da conscientização do meio ambiente e sustentabilidade por meio dos benefícios e cashbacks em criptomoeda, a hyrdacoin-hyd. 
-
-A Hydracorp tem como foco projetos voltados para : água, gás, eletricidade, comunicação, reciclagem e mineração limpa. Esses são os pilares principais que serão iniciados.
-
+Through the union of decentralizing projects and cryptocurrency incentives, we will have a libertarian fusion and accelerator of macroeconomic growth.
  
 
  
 
-Esses são os pilares principais que iremos iniciar:
+Hydracorp's mission is to deliver fundamental tools that allow the population access to freedom and financial prosperity. These tools are mainly technology and knowledge in the development and feasibility of the most varied projects that will benefit society.
 
-Tecnologia, Finance, Liberdade, Descentralização, Distribuição, Segurança, Justiça, Sustentabilidade e Meio Ambiente.
+The projects incorporated into Hydracorp will give the ability to generate extra income. In addition, they will be accelerators of environmental awareness and sustainability through benefits and cashbacks in cryptocurrency, hyrdacoin-hyd.
+
+Hydracorp focuses on projects aimed at: water, gas, electricity, communication, recycling and clean mining. These are the main pillars that will be started.
+ 
 
  
 
-A Hydracorp, acredita que as criptomoedas juntamente com os projetos descentralizados e distribuídos, serão a chave para o novo mundo.
+These are the main pillars that we will start:
+
+Technology, Finance, Freedom, Decentralization, Distribution, Security, Justice, Sustainability and Environment.
 
  
 
-Nós da Hydracorp, agradecemos a confiança depositada em nossa empresa. Nossa equipe estará a suas disposição e vamos buscar levar o conhecimento aos quatro cantos do mundo.
+Hydracorp believes that cryptocurrencies together with decentralized and distributed projects will be the key to the new world.
 
  
 
-Hydracorp, descentralizado e distribuído o futuro!
+We at Hydracorp thank you for the trust placed in our company. Our team will be at your disposal and we will seek to take knowledge to the four corners of the world.
+
+ 
+
+Hydracorp, decentralized and distributed the future!
